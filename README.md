@@ -10,4 +10,5 @@ education must focus on developing the skills students need to succeed in a rapi
 Even while technologies replace some jobs, they are creating new work in industries that most of us cannot even imagine, and new ways to generate income
 
 Create incentives for private-sector investment to treat human capital like other capital
+
 Steve Jobs for reflection: “Technology is nothing; the important thing is that you have faith in people, that they are good and intelligent, and if you give those tools, they will do wonderful things with them”
