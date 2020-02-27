@@ -12,3 +12,9 @@ Even while technologies replace some jobs, they are creating new work in industr
 Create incentives for private-sector investment to treat human capital like other capital
 
 Steve Jobs for reflection: “Technology is nothing; the important thing is that you have faith in people, that they are good and intelligent, and if you give those tools, they will do wonderful things with them”
+
+------------------------------------------------------
+
+Desde mi punto de vista uno de los requisitos para esa posición es tener experiencia en atención al cliente, mis últimos trabajos has sido de construir relaciones tanto con clientes como con proveedores.
+Por lo que sé de esta posición es la de interactuar con clientes que han invertido dinero en publicidad en la plataforma, en mi trabajo actual hago un papel similar de resolver problemas a aconsejar a personal en las que cada decisión representa una cantidad de dinero muy importante, por lo cual hay que ser sumamente preciso.  Además, redactar mail, recibir y realizar llamados en 3 idiomas, buscan en bases de datos y manuales de procedimientos.
+Por último, ya trabajé indirectamente para Facebook, conozco su forma de trabajar y sus políticas, mi ventaja es que voy a prender rápido y ser productivo para la empresa rápidamente.
